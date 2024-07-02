@@ -291,7 +291,7 @@
 ![image](https://github.com/RanjithD18/html-ABC-college/assets/93427221/c663be78-7ddc-42c3-a321-7e2982cedeb4)
 ![image](https://github.com/RanjithD18/html-ABC-college/assets/93427221/193b7f57-1f4e-45cb-9af6-6b4f62dc67bc)
 ![image](https://github.com/RanjithD18/html-ABC-college/assets/93427221/3dc002a5-90ba-49cc-bab3-8531ea6e3298)
-![image](https://github.com/RanjithD18/html-ABC-college/assets/93427221/5b79250f-55ed-4a2c-b2a3-0fa130cea33a)
+![image](https://github.com/RanjithD18/html-ABC-college/assets/93427221/2746a310-2cd0-4509-95f6-f33cbcfe80a8)
 ![image](https://github.com/RanjithD18/html-ABC-college/assets/93427221/40fb84f8-3768-4557-a664-5c7f5cf473a8)
 ![image](https://github.com/RanjithD18/html-ABC-college/assets/93427221/e6c77df9-b9ee-4d2f-ac31-bfaa9486546c)
 ![image](https://github.com/RanjithD18/html-ABC-college/assets/93427221/c343b24f-60f5-4db3-8d71-12636cb07fa0)
